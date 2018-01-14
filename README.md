@@ -5,4 +5,4 @@ I'm hired for people to profile their fantasies, the DEEP♂DARK♂FANTASIES.
 Oh my shoulder!
 feature-A
 fix-B
-faeture-C
+feature-C
